@@ -1,1 +1,1 @@
-![Image](jaycartoon.png)
+![Image](jaycartoon.jpg)
